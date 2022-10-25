@@ -1,0 +1,3 @@
+- 👋 Oiee,I’m Duda Roza <3
+- 👀 Estou interessada em aprender mais sobre programação!
+- 🌱 Atualmente estou aprendendo Inglês
